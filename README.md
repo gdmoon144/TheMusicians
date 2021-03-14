@@ -279,6 +279,6 @@ Through stage and video performances, he popularized complicated dance moves suc
 ```
 
 ### 완성
-https://raw.githubusercontent.com/gdmoon144/TheMusicians/main/img/%EC%99%84%EC%84%B11.jpg
+![initial](https://raw.githubusercontent.com/gdmoon144/TheMusicians/main/img/%EC%99%84%EC%84%B11.jpg)
 
 
