@@ -280,5 +280,4 @@ Through stage and video performances, he popularized complicated dance moves suc
 
 ### 완성
 
-![1포플](C:\Users\GD\Desktop\MarkDown\1포플.jpg)
 
